@@ -78,7 +78,7 @@ To secure an entry-level **DevOps Engineer** role where I can apply my knowledge
 
 ## 📫 Connect With Me
 
-* **LinkedIn:** https://www.linkedin.com/in/pranay-deshmukh-118a0b394
+* **LinkedIn:** https://www.linkedin.com/in/subodh-zodape-715b3223b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 * **Email:** [dpranay182@gmail.com](mailto:dpranay182@gmail.com)
 
 ---
